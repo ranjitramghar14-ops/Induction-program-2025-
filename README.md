@@ -52,10 +52,18 @@ Which was taken senior students .
 ## Day 3
 #### 9.00 am to 11.00 am
 ### Expert Lecture by:
-###### Dr. Jaswinder singh (Incharge- IAPT) in which he provide us useful and great knowlege of Science , Mathematics And Faith in god .
+###### Dr. Jaswinder singh (Incharge- IAPT) in which he provide us useful and great knowledge of Science , Mathematics to life through fun, experiments and demonstrations .(renowned for jaswinS Lab on wheels).
+after that 
+### Chief guest : S. Gurcharan singh Grewal 
+###### encouraging students with his motivating words .
 #### 11.00 am to 01.00 pm 
 ### Expert Lecture by : 
-###### Dr. Priya Darshani Madam ( UHV) in whicb she provide us ,"Exploring our aspirations and concerns" .
+###### Dr. Priya Darshani Madam ( UHV) in which she enriched our young mind with clarity ,personal growth , self reflections .
+After that 
+### Proficiency test result :
+###### We had a group discussion , where students talked about their test results in Mathematics and English . 
+
+
 
 
 
