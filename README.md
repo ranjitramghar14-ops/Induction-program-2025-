@@ -62,6 +62,31 @@ after that
 After that 
 ### Proficiency test result :
 ###### We had a group discussion , where students talked about their test results in Mathematics and English . 
+## Day 4
+#### 9.30 am to 10.30 am 
+### chemistry lecture :
+###### Our first chemistry lecture was given by professor Rajvir kaur Mam in TCC Sem. hall . It was a lecture to remind about 12th class chemistry .
+### Peer 2 peer Lecture :
+#### 10.30 am to 11.30 am 
+###### That lecture was taken  by senior students of college in TCC sem. hall .In that lecture they taught us about C++ language 
+### UHV-2 : expert lecture :
+#### 12.30 pm to 2.30 pm 
+###### Dr. priya darshani mam taught us about Universal human values -2 next to first session . after that she discuss about previous assignment about physical facility , relationship , right understanding . 
+### Causmic club session :
+#### 2.30 pm to 3.30 pm
+###### In that session , We met with causmic club which is self dependence. They taught us that how to take right choice to get anything . In the end , they discuss about laptops which is very important for a CSE or IT students .
+## Day 4 
+### English lecture :
+#### 9.30 am to 10.30 am
+###### This lecture was of english subject given by Professor Manjot kaur , In which she take intorduction of everyone in english . 
+### Mathematics lecture : 
+#### 10.30 am to 11.30 am 
+###### This lecture was given  by professor Rajbir kaur , In which she dicuss about 12 class mathematics questions .
+### BEEE lecture :
+#### 11.30 am to 12.30 am 
+###### I was afraid about this subject but after get knowlege about it, I get really happy because it was class of electrical and electronics engineering . In which learn about Dc and Ac curcuits . This lecture was given by professor Mandeep kaur .
+
+
 
 
 
