@@ -75,7 +75,7 @@ After that
 ### Causmic club session :
 #### 2.30 pm to 3.30 pm
 ###### In that session , We met with causmic club which is self dependence. They taught us that how to take right choice to get anything . In the end , they discuss about laptops which is very important for a CSE or IT students .
-## Day 4 
+## Day 5
 ### English lecture :
 #### 9.30 am to 10.30 am
 ###### This lecture was of english subject given by Professor Manjot kaur , In which she take intorduction of everyone in english . 
@@ -85,6 +85,36 @@ After that
 ### BEEE lecture :
 #### 11.30 am to 12.30 am 
 ###### I was afraid about this subject but after get knowlege about it, I get really happy because it was class of electrical and electronics engineering . In which learn about Dc and Ac curcuits . This lecture was given by professor Mandeep kaur .
+## Day 6 
+### peer to peer lecture :
+#### 9.30 am to 10.30 am
+###### This lecture was taken by senior students next to the previous lecture .
+### Lecture of ethics :
+#### 10.30 am to 11.30 am 
+###### This lecture was given by professor Jaswant singh . He was often quit late due to change in lecture venue .He give us knowledge about self control and body language . 
+### Lectures in Auditorium :
+#### 12.30 pm to 2.00 pm
+###### This lecture was given by Dr. Arvind Dhingra ( Director - STEP and Incharge - TAC ) . In this lecture , He provide some information .
+### College genconian :
+#### 2.00 pm to 3.00 pm 
+###### This was not a lecture ,Mr . Jasvir singh sekhon ( DRP-STEM ) sharing his life sturggle being a genconian .
+### Introduction to CML :
+#### 3.00 pm to 4.00 pm 
+###### This lecture was given by Dr. Lakhvir singh khana (incharge - CML ) He provide information about NPTEL Courses on Swayam website and CML program for students .
+## day 7 
+### Lectures given by : 
+#### 09.30 am to 12.30 pm 
+###### Dr.Amit kamra ( Incharge - DMC ) He said to take parts in DMC competetion in Video making of college campus .
+###### Dr. Parminder singh ( Dean of student welfare ) , He gave us visonable and informative speech .
+###### Dr. Randhir singh gave us speech about exam markings and structures and GNDEC website . 
+### BEEE lecture :
+#### 01.30 pm to 02.30 pm 
+###### In this lecture Professor Mandeep kaur taught us next to the previous lecture .
+### English lecture :
+#### 2.30 pm to 3.30 pm 
+###### This lecture did not take place due ID card formation .
+
+
 
 
 
