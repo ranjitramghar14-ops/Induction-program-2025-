@@ -5,6 +5,7 @@
 ##### Mobile No. : 9877317301 
 ##### Email Id : ranjitramghar14@gmail.com
 ##### Photograph : ![image](https://github.com/user-attachments/assets/d227b099-480c-4fa8-b1d1-708e08f2c1bd)
+![Uploading image.jpeg…]()
 
 # Induction-program-2025-
 ##### Guru Nanak Dev Engineering College,Ludhiana
@@ -113,7 +114,16 @@ After that
 ### English lecture :
 #### 2.30 pm to 3.30 pm 
 ###### This lecture did not take place due ID card formation .
-
+## day 8 
+### Chemistry class :
+#### 9.00 am to 10.30 am 
+###### This lecture was of chemistry by professor Rajvir kaur . She is too good in her profession .She knows that , how to teach students perfectly . 
+### P2P lecture :
+#### 10.30 am to 12.00 pm 
+###### This lecture was given seniors students next to the previous lecture . After that they provide us knowledge about college rules .
+## End of the induction programme 2025
+###### This programme was too good for newly students to entering the college life very smoothly .This programme helps the students to explore the knowledge , information etc . It provide information about fellowship , scholarship and many other details for students benefits.I'm happy to say that ,  Now I'm a part of GNDEC family .
+###### ..... Thank You ......
 
 
 
